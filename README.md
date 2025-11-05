@@ -6,4 +6,4 @@ Final Fanstasy Sonic X, was a Turn based fan game, with Sonic, Link and Mega man
 
 How to Contribute:
 
-- [Final Fantasy Sonix X Ep 1]https://www.newgrounds.com/portal/view/197118
+- [(Final Fantasy Sonix X Ep 1)https://www.newgrounds.com/portal/view/197118]
